@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm Huy Hoang (Hồ Huy Hoàng) from Quảng Ngãi
 
 <!--
 **hohuyhoangg/hohuyhoangg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
